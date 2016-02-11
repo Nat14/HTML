@@ -1,4 +1,4 @@
-# HTML
+# Day 2 at LEARN Academy 1/20/2016
 
 Day 2 at LEARN Academy 1/20/2016
 
